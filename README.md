@@ -53,8 +53,7 @@ Credit By@ Nadya Sutjiadi.
 - `Add My ID LINE : nad_nad. (pake titik)`
 
 Thx To :
-------
-- `Alfatdirk`
+
 
 
 
